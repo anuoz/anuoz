@@ -1,16 +1,21 @@
-## Hi there 👋
+xzl仙踪林老狼大豆行情仙踪林官方网站欢迎你大豆信息
 
-<!--
-**anuoz/anuoz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**<a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→最/新/观/看/入/口←←</a>**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+最初的时候，在北面也有一个校舍，不过在五十年前，远月学院真正开始崛起之后，就逐渐扩建到了现在的校区，现在严格来说，旧校舍已经不属于学院的范围。
+
+    后来一次山体滑坡，也令旧校舍几乎被毁，平时没什么人来这边，已经杂草丛生。
+
+    “看来五十年前，远月学院还不是像现在这么大啊……”刘昴星走进旧校舍之后感叹道。
+
+    “我已经来了！你们人呢！”刘昴星喊了一声，但是却不见回音。
+
+    刘昴星的鼻翼动了动，发现正前方，旧校舍唯一一处还比较完整的四层建筑中，有人类活动的味道，不过却没有发现郁魅的味道！
+
+    “难道已经被转移了？不管了，先去看看是什么人再说！”
+
+    刘昴星此时还没有发现，在接近旧校舍之后，附近的手机信号已经被干扰屏蔽了，这也令已经到家的郁魅，没能联系到刘昴星……
+
+    推开似乎是旧宿舍的四层小楼的大门，刘昴星便发现已经有人在这里等他，同时也暂歇超嗅觉的能力，毕竟对于刘昴星来说，绝技是要消耗“食之能量”的！
